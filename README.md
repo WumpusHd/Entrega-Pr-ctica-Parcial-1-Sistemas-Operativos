@@ -1,0 +1,1 @@
+# Entrega-Pr-ctica-Parcial-1-Sistemas-Operativos
